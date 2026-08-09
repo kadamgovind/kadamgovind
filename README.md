@@ -280,10 +280,13 @@ The goal is to become a researcher, engineer, and builder capable of working on 
 
 ---
 
-🌐 Connect
+🌐 Connect With Me
 
 - 💼 LinkedIn: https://www.linkedin.com/in/kadamgovind
-- 📧 Email: gsk662006@gmail.com
+- 🐙 GitHub: https://GitHub.com/kryomai
+- 📸 Instagram: YOUR_INSTAGRAM_LINK
+- 𝕏 X: YOUR_X_LINK
+- 📧 Email: kryomaix@gmail.com
 
 ---
 
